@@ -1,4 +1,4 @@
-#  
+#  hidden cut grass for brainroots Scripts is the best cut grass for brainroots Script, featuring infinite resources and custom skins. Safe and powerful
 
 
 
